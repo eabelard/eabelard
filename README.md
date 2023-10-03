@@ -8,6 +8,6 @@ Lastly, I value ethics in technology. As we progress, we must recognize the imme
 
 My vision is to empower, inspire, and guide the next generation of developers, providing them with the tools they need to create a future driven by innovative, responsible, and inclusive technology.
 
-The foundation of this vision starts with me dedicating myself to a growth mindset, reading, writing, and learning sharing.
+The foundation of this vision starts with me dedicating myself to a growth mindset, reading, writing, learning and sharing knowledge.
 
 Breaking limits and becoming a limit breaker.
